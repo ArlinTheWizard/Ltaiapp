@@ -1,10 +1,6 @@
 Photos:
 
 
-
-
-
-
 ![8S4sKyj80hyTqxDfheg7](https://github.com/user-attachments/assets/541316d9-73e7-4fb8-aa7e-a216adde32ab)
 ![9vb3naKZdmIEFxbIlpyh](https://github.com/user-attachments/assets/c0acc677-4e7a-45df-bbad-9b853421e370)
 ![22XhFTzEs6EN5JJOM17F](https://github.com/user-attachments/assets/d0e62c23-9b18-4851-a5cb-f594543ef0a6)
