@@ -86,7 +86,3 @@ https://youtu.be/MDib0RFj_1U
 
 https://youtu.be/IijlylAun4c
 
-Parte scris
-[Parte_Scrisa_Proiect_Brad.docx](https://github.com/user-attachments/files/16382758/Parte_Scrisa_Proiect_Brad.docx)
-a:
-
