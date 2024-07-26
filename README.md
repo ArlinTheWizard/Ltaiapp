@@ -87,6 +87,7 @@ https://youtu.be/MDib0RFj_1U
 https://youtu.be/IijlylAun4c
 
 Documentatie:
-[Parte_Scrisa_Proiect_Brad (1).docx](https://github.com/user-attachments/files/16382936/Parte_Scrisa_Proiect_Brad.1.docx)
+[Parte_Scrisa_Proiect_Brad (1).docx](https://github.com/user-attachments/files/16387826/Parte_Scrisa_Proiect_Brad.1.docx)
+
 
 
