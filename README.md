@@ -89,7 +89,8 @@ https://youtu.be/IijlylAun4c
 
 Documentatie:
 
-[Parte_Scrisa_Proiect_155 Ani_Brad (2).pdf](https://github.com/user-attachments/files/16393919/Parte_Scrisa_Proiect_155.Ani_Brad.2.pdf)
+
+[Parte_Scrisa_Proiect_155 Ani_Brad (3).pdf](https://github.com/user-attachments/files/16398369/Parte_Scrisa_Proiect_155.Ani_Brad.3.pdf)
 
 
 
